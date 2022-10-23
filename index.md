@@ -1,0 +1,3 @@
+# Vikas Yendluri
+
+Vikas Yendluri is a musician & tabla player based in New York. He began his training at the age of 5 under Sri Arshad Syed, and has continued training under Ustad Zakir Hussain. In addition to his work as a soloist, Vikas has accompanied some of the greatest masters of Indian classical music, including Ustad Amjad Ali Khan, Ustad Shahid Parvez, and Pandit Rajeev Taranath. He has also taught Indian classical music at various institutions, including at Stanford University (his alma mater).
